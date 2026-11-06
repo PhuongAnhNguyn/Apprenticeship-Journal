@@ -1,2 +1,2 @@
 # Apprenticeship-Journal
-Well, I've already finish my apprenticeship journey at SMTRC (7-day-journey) Center for Research on Intelligent Technology and Manufacturing
+Well, I've already finish my apprenticeship journey at SMTRC (7-day-journey) Center for Research on Intelligent Technology and Manufacturing. I'd love to share with you about it:))
